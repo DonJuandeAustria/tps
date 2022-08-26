@@ -1,1 +1,1 @@
-"no se copien che" 
+no se copien che
